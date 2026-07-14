@@ -1,1 +1,0 @@
-# daigakukadai0829.github.io
